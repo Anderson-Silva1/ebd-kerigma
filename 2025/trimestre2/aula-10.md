@@ -101,19 +101,13 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
 
 > **E toda essa postura de Davi, gerou um exemplo negativo para seus filhos que tiveram posturas reprováveis**
 
-> **MAs vale ressaltar que Davi sempre mostrou um arrependimento e temor ao senhor, mesmo diante de tantas falhas.**
+> **Mas vale ressaltar que Davi sempre mostrou um arrependimento e temor ao senhor, mesmo diante de tantas falhas.**
 
----
+<br />
+<br />
+<br />
 
----
-
----
-
----
-
-```txt
-Não Adianta ter êxito em tudo se a nossa familia é a prova do nosso fracasso!!
-```
+> # **Não Adianta ter êxito em tudo se a nossa familia é a prova do nosso fracasso!!**
 
 ### Atravèz da familia de Davi, podemos tirar algumas lições preciosas:
 
@@ -124,3 +118,33 @@ Não Adianta ter êxito em tudo se a nossa familia é a prova do nosso fracasso!
 #### 3. A auxência da correção por conta dos pais contribui para conflitos futuros
 
 #### 4. Essa mesma auxência da correção por conta dos pais podem criar filhos frágeis e imaturos
+
+<br />
+
+## 1.2 FAMÍLIA, A NOSA BASE
+
+- A Familia é um projeto de Deus
+
+- Familia é a nossa base aqui na terra
+
+- A Familia tem a função de nos `construir`, `proteger`, `ensinar` e `preparar` para os desafios do mundo
+
+- Todo dia somos acompanhados por nossa herança (ensinos) familiar, que é refletido na `forma de pensar`, na `forma de ver o mundo` e `interagir com ele`
+
+- Aqui vemos a importância de ensinar da forma correta nossos futuros filhos, pois isso eles irão levar para a vida
+
+- Vemos também a importância de fortalecer esse vínculo familiar, para um edificar o outro
+
+- Quando conduzidos pelo Espírito Santo, devemos ter em mente que: `Somos abençõados em Família`
+
+- Ainda conduzidos pelo Espírito Santo, podemos de forma individual abençõar esse Vínculo tão importante
+
+---
+
+## COMO EU POSSO MEÇHORAR MEU RELACIONAMENTO COMMINHA FAMILIA HOJE?
+
+<br />
+
+## 1.3 UMA FAMÍLIA PARA A GLÓRIA DE DEUS
+
+- Família é criação de Deus
