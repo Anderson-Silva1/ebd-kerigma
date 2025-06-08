@@ -147,4 +147,12 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
 
 ## 1.3 UMA FAMÍLIA PARA A GLÓRIA DE DEUS
 
-- Família é criação de Deus
+- Família é criação de Deus, **E QUEM SEGUE AS DIRETRÍZES DIVÍNAS, SÃO ALVO DAS SUAS BÊNÇÃOS**
+
+- Porém muitas falssas ideologias estão tentando mudar a nossa mentes ideologias `Antropocêntricas`, `Políticas`, `Autosatisfatórias`
+
+- Todas essa ideologias não obterão êxito, pois todas as coisas foram criadas pelo **Senhor**, e apenas N'Ele encontram o real sentido de existir
+
+- Desde a criação, a família tem o propósito de ser o núcleo de comunhão, bênçãos e ações em busca de fazer o bem, e assim honrrar e glorificar o seu nome
+
+> #### **Para que possamos usufruir da bênção do Senhor sobre nossas famílias devemos nos sujeitas a sua palavra e seguir atentamente os seus Desígnios**
