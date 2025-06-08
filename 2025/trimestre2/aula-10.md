@@ -10,6 +10,8 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
 
 **_"Não sei qual Deus vocês irão seguir, se é o de vossos pais, os deuses dos cananeus, porém eu e minha casa serviremos ao Senhor!!"_**
 
+<br />
+
 ## OBJETIVOS
 
 ### 1. **SABER** que a família é um projeto de Deus
@@ -238,7 +240,7 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
 
 <br />
 
-## QUEM QUER UM BOM CASAMENTO?
+## 2.3 QUEM QUER UM BOM CASAMENTO?
 
 - Todos queremos, e é essa a vontade de Deus para cada um de nós, um bom casamento
 
