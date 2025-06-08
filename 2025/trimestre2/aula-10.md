@@ -27,3 +27,33 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
 > **RELATO DE UM CRIME ENCOBERTO**
 
 - Absalão tinha uma irmã muito bonita, que seu meio irmão Amnon era apaixonado
+
+- Amnon estava tão apaixonado que ficou doente, pois sabia que ela era virgem e não podia ter relações com ninguém
+
+- No entanto, Amnon tinha um amigo chamado Jonadabe, e percebeu que Amnon não estava bem, e perguntou
+
+- Amnon disse que amava muito a irmã de Absalão
+
+- Então Jonadabe disse para Amnon: "Finge que está doente e abusa dela"
+
+- Amnon fez, e tudo saiu como foi planejado, mas depois de tudo ele odiou ela e mandou ela embora
+
+- A irmã de Absalão ficou arrazada, e seu irmão perguntou o que tinha acontecido
+
+- Então Absalão depois de saber de tudo, disse para ela não contar para ninguem e deixar passar, mas ele estava furioso.
+
+- Dois anos depois Absalão faz um jantar, e chama todos os seus irmãos
+
+- Antes desse Jantar, Absalão ordenou aos seus servos que quando Amnon estivesse bêbado, era para matá-lo, e assim aconteceu
+
+### Vemos aqui que a Poligamia de Davi lhe causou inúmeros problemas como:
+
+- Estupro
+
+- Homicídio
+
+- Rebelião
+
+- Ganância
+
+### **E tudo isso por causa de rivalidades invejosas entre meios irmãos**
