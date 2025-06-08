@@ -156,3 +156,50 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
 - Desde a criação, a família tem o propósito de ser o núcleo de comunhão, bênçãos e ações em busca de fazer o bem, e assim honrrar e glorificar o seu nome
 
 > #### **Para que possamos usufruir da bênção do Senhor sobre nossas famílias devemos nos sujeitas a sua palavra e seguir atentamente os seus Desígnios**
+
+<br />
+
+# 2 CASAMENTO, UMA SÓ CARNE
+
+## 2.1 COMO NÃO CONDUZIR UM CASAMENTO
+
+- Davi tem o título de o **_"homem segundo o Coração de Deus"_**
+
+- Porém no que tange o Casamento, Davi fracassou muito.
+
+- Se casou diversas vezes e adulterou.
+
+- O que explica os muitos casamentos de Davi?
+
+  - Era costume dos Monarcas antigamente para:
+
+    - Garantir a sucessão no trono
+
+    - Estabelecer alianças econômicas
+
+    - Aumentar a influência da Familia Real
+
+  - Luxuria da Época, possuir várias mulheres erasinal de poder e riquesa.
+
+- É nítido que os muitos casamentos de Davi foram a porta de entrada para muitos problemas:
+
+  - Rivalidade entre meios irmãos
+
+  - Sofrimento emocional das esposas
+
+  - Indiferênça entre esposas
+
+  - **COMO NO EPISÓDIO DE MICAL**
+
+  > - 2 Sm 6
+  > - O rei Traz de Volta a Arca da aliânça
+  >
+  > - Ao chegar em Jesusalém, dança alegremente com uma veste sacerdotal simples (como forma de mostrar humildade perante a Deus)
+  >
+  > - Mical vê pela janela e se envergonha de Davi, e sente desreso
+  >
+  > - Davi, ao chegar no palácio é Recebido por Mical de forma sarcástica (**_2 Sm 6:20_**)
+  >
+  > - Davi respondeu de forma desnecessária, dizendo que ele tinha feito isso para Deus que tirou o pai dela do trono (**2 Sm:21**)
+  >
+  > - Desde então Mical nunca teve filhos com Davi
