@@ -203,3 +203,37 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
   > - Davi respondeu de forma desnecessária, dizendo que ele tinha feito isso para Deus que tirou o pai dela do trono (**2 Sm:21**)
   >
   > - Desde então Mical nunca teve filhos com Davi
+  >
+  > - **O que muitos interpretam como uma consequência direta de seu desprezo pela atitude de Davi e da subsequente alienação do casal.**
+
+<br />
+
+## 2.2 UM CASAMENTO A LUZ DA BÍBLIA
+
+- Casamento é fruto da Vontade de Deus para nossas vidas
+
+- Mas não é Deus quem escolhe com que iremos nos casar, isso é escolha nossa... Desde o namoro, noivado e até o casamento em si.
+
+- Em Gênesis, Deus usa a expressão: "**Não é bom que o homem fique só**"
+
+- Podemos escolher não casar, não é pecado, porém Deus aconselha ao homem casar-se
+
+- Pois somos seres sociáveis, e a **solidão** não combina conosco
+
+- Diânte disso, Deus fêz a mulher como ajudadora
+
+  - Não é inferior ou superior que ninguém
+
+  - Mas sim, semelhante em união perfeito a ponto de serem 1 (Mt 19:6)
+
+- Jesus ensinou que o casamento é a junção de duas pessoas que serão uma só, no sentido de:
+
+  - Os sentimentos afetam ambos
+
+  - As dores afetam ambos
+
+  - A vida um do outro é afetada mesmo que inconsientemente
+
+- O casamento é algo tão sério que Jesus o usa como exemplo para ilustrar a relação de Cristo com a Igreja (**Ef 5; Ap 19**)
+
+<br />
