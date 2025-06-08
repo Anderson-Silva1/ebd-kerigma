@@ -102,3 +102,25 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
 > **E toda essa postura de Davi, gerou um exemplo negativo para seus filhos que tiveram posturas reprováveis**
 
 > **MAs vale ressaltar que Davi sempre mostrou um arrependimento e temor ao senhor, mesmo diante de tantas falhas.**
+
+---
+
+---
+
+---
+
+---
+
+```txt
+Não Adianta ter êxito em tudo se a nossa familia é a prova do nosso fracasso!!
+```
+
+### Atravèz da familia de Davi, podemos tirar algumas lições preciosas:
+
+#### 1. Mesmo o Homem escolhido pelo Senhor é sujeito ao Pecado
+
+#### 2. A falta de diálogo na familia provoca desentendimentos
+
+#### 3. A auxência da correção por conta dos pais contribui para conflitos futuros
+
+#### 4. Essa mesma auxência da correção por conta dos pais podem criar filhos frágeis e imaturos
