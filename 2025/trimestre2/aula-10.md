@@ -237,3 +237,53 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
 - O casamento é algo tão sério que Jesus o usa como exemplo para ilustrar a relação de Cristo com a Igreja (**Ef 5; Ap 19**)
 
 <br />
+
+## QUEM QUER UM BOM CASAMENTO?
+
+- Todos queremos, e é essa a vontade de Deus para cada um de nós, um bom casamento
+
+- Porém precisamos nos atentar aos princípio bíblicos para o mesmo, pois o cordão de 3 dobras não se rompe tão facilmente
+
+### Princípios Bíblicos para o casamento
+
+#### 1. Precisa ser uma união indissolúvel, ou seja, vitalício, **`sem divórcio`**
+
+#### 2. Precisa ter uma fidelidade recíproca na:
+
+- Saúde
+
+- Doênça
+
+- Felicidade
+
+- Adversidade
+
+#### 3. Em Amor incondicional (Ágape ou Amor de Deus) promovendo:
+
+- Respeito
+
+- Comunicação
+
+- Compreensão
+
+- Companherismo
+
+- Perdão
+
+#### 1. Em crescente intimidade:
+
+- Física
+
+- Emocional
+
+- Intelectual
+
+- Espiritual
+
+> ### Vale destacar que:
+>
+> - O Homem e a Mulher "deixam" de ser filhos, para serem marido e esposa, pais e mães.
+>
+> - Os pais/sogros continuam conectados porém não como antes
+>
+> - Mas se tornarão apoiadores e conselheiros de certa forma um pousco mais distânte (distância de forma saldável)
