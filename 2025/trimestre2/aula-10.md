@@ -57,3 +57,48 @@ Texto aluzivo ao episódio em que o povo está com medo de entrar na terra prome
 - Ganância
 
 ### **E tudo isso por causa de rivalidades invejosas entre meios irmãos**
+
+<br />
+
+## INTRODUÇÃO
+
+- Tanto os erros quanto os acertos de Davi nos trazem grandes ensinamentos
+
+- Vemos a presença de virtudes importantes na vida de Davi, porém mesmo assim, Davi sofreu com um casamento fora da vontade de Deus e filhos inconsequentes
+
+- Mas independente das falhas e desafios ele teve uma postura amorosa com seus filhos e suas esposas
+
+- Além disso, ele teve um coração contrito e sedento pela palavra de Deus
+
+- UM VERDADEIRO EXEMPLO PARA TODOS NÓS
+
+<br />
+
+# 1 - FAMÍLIA UM PROJETO DE DEUS
+
+## 1.1 - A FAMÍLIA DE DAVI
+
+- **Quem foi Davi? (Pergunte aos Alunos)**
+
+- Quando olhamos para Família de Davi, vemos uma realidade diferente da que imaginamos.
+
+### Davi foi um:
+
+- **Herói da Fé**
+- **Homem íntegro**
+- **Humilde**
+- **Fiel a Deus**
+- **Guerreiro Poderoso**
+- **Grande Rei de Israel**
+
+### Mas quando se trata de família, Davi foi:
+
+- **Poligâmico**
+- **Pai sem comunhão com os filhos**
+- **Contra do diálogo em família**
+- **Adúltero**
+- **Omisso na educação dos filhos**
+
+> **E toda essa postura de Davi, gerou um exemplo negativo para seus filhos que tiveram posturas reprováveis**
+
+> **MAs vale ressaltar que Davi sempre mostrou um arrependimento e temor ao senhor, mesmo diante de tantas falhas.**
